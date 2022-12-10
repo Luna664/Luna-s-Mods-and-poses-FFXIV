@@ -1,0 +1,1 @@
+Created directly with the npc of Gaius, works very well with other weapons and jobs with some small adjustments
