@@ -1,0 +1,1 @@
+Removal of tattoos on the Pagos Shirt for all gender and all races

@@ -1,0 +1,1 @@
+Change the color of the horns in black for the hairstyle 3 of the female AuRa
